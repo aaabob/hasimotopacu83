@@ -1,1 +1,0 @@
-# hasimotopacu83
